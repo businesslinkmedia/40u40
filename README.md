@@ -1,1 +1,2 @@
-# Hamilton 2025 40u40 Photos
+# 40u40 related content
+## Photos, etc.
